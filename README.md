@@ -28,6 +28,7 @@ _ Daily limit: $500k
 
 Interested clients and customers should write to us on whatsapp: +48 573 560 921 
 Email: Cryptolordtech@gmail.com 
+
 https://wa.me/48573560921 
 
  Note: To be on a safer side we now accept escrow payment.
